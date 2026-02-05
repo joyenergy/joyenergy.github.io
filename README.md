@@ -1,1 +1,1 @@
-# joyenergy.github.io
+# Joy In The Gold Coast Of Ghana
